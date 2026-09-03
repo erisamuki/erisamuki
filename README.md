@@ -107,11 +107,11 @@ I'm continuously working toward becoming a highly skilled software developer by 
 
 I'm open to learning, collaboration, and working on innovative technology projects.
 
-📧 Email: **[Your Email]**
+📧 Email: erisamukisa51@gmail.com
 
 🌐 Portfolio: **[Your Portfolio]**
 
-💼 LinkedIn: **[Your LinkedIn]**
+💼 LinkedIn: https://www.linkedin.com/in/mukisa-erisa-114a51238
 
 ---
 
