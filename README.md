@@ -109,7 +109,7 @@ I'm open to learning, collaboration, and working on innovative technology projec
 
 📧 Email: erisamukisa51@gmail.com
 
-🌐 Portfolio: **[Your Portfolio]**
+🌐 Portfolio: [**[Your Portfolio]**](https://www.figma.com/make/vXw6A0rwTBt1GEuJeNRwj6/eritec-web?fullscreen=1&t=PoYlJJgivcHpaC1c-1&code-node-id=0-6)
 
 💼 LinkedIn: https://www.linkedin.com/in/mukisa-erisa-114a51238
 
